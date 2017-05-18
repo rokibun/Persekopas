@@ -1,0 +1,2 @@
+# Persekopas
+Kolum Komentar
